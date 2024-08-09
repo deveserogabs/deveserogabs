@@ -1,9 +1,9 @@
 **Bem-vindo ao meu perfil** 🤡 🐰
 
-Meu nome é Gabriel Moreira 👾
+Meu nome é Gabriel Moreira 💀
 
 Estou:
-- Estudando na [Alura](https://www.alura.com.br).
+- Estudando na [Alura](https://www.alura.com.br). 👾
 
 - Aprendendo a **linguagem JavaScript** ✨
 
