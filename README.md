@@ -10,4 +10,4 @@ Estou:
 - _Usando este lugar para organizar e compartilhar meus projetos_ ☝️ 🤓
 
 ![](https://media1.tenor.com/m/LHBdlduUFPsAAAAC/bunny-bnuuy.gif)
-![](https://media1.tenor.com/m/7Pyw0W04GEAAAAAC/bunny-rabbit.gif)
+![](https://media1.tenor.com/m/5UIJJdDdEpgAAAAC/uranium-heart.gif)
